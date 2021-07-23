@@ -1,1 +1,2 @@
-getting better...
+first thing doing at github:)
+
